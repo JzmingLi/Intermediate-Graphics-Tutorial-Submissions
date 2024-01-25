@@ -1,0 +1,8 @@
+![Unity_1daL1ElMQd](https://github.com/JzmingLi/Intermediate-Graphics-Tutorial-Submissions/assets/117390914/1a5fe522-dc53-42d3-a61c-070aeb02e729)
+![Unity_TJZIxAhX2v](https://github.com/JzmingLi/Intermediate-Graphics-Tutorial-Submissions/assets/117390914/16d87465-6412-45f0-9b87-73e1023d39a0)
+![Lightmap-0_comp_dir](https://github.com/JzmingLi/Intermediate-Graphics-Tutorial-Submissions/assets/117390914/b7b54bd5-4d00-4454-8a00-7bd5da1819bb)
+![Lightmap-0_comp_dir](https://github.com/JzmingLi/Intermediate-Graphics-Tutorial-Submissions/assets/117390914/735213d4-1b08-4e24-87c5-40c6fc4fad1a)
+![Lightmap-0_comp_dir](https://github.com/JzmingLi/Intermediate-Graphics-Tutorial-Submissions/assets/117390914/9a0f7b9f-c886-42fc-ae5d-6672271a5109)
+![Lightmap-0_comp_dir](https://github.com/JzmingLi/Intermediate-Graphics-Tutorial-Submissions/assets/117390914/b1ef34d7-d4a1-4a1a-891c-4783e76d8336)
+![Lightmap-0_comp_dir](https://github.com/JzmingLi/Intermediate-Graphics-Tutorial-Submissions/assets/117390914/89131bad-e3e8-4c81-80fb-267a1558d082)
+![Lightmap-0_comp_dir](https://github.com/JzmingLi/Intermediate-Graphics-Tutorial-Submissions/assets/117390914/5fcb0b8e-5bed-4056-a05e-74174b667f73)
